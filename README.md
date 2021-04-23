@@ -175,5 +175,5 @@
 
 
 更多招聘岗位如下图，欢迎联系！
-![WechatIMG41](https://user-images.githubusercontent.com/14799339/110456742-e19dce80-8104-11eb-841c-be2d10d867ed.jpeg)
+![莉莉丝2021年4月最新招聘](https://user-images.githubusercontent.com/14799339/115856488-25ebf080-a45f-11eb-98b0-cbb9fcf091ee.png)
 
